@@ -1,0 +1,1 @@
+# newfuunmagazine.github.io
